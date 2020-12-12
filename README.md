@@ -1,0 +1,1 @@
+This silky red velvet cake recipe is tender, moist and perfectly chocolatey. Sandwiched together with the dreamiest cream cheese frosting
